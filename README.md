@@ -1,4 +1,4 @@
 # links-for-school
 a repository filled with unblockers, games, and more!! 
-click on mainunblockers
 
+Click on Mainunblockers to find links
