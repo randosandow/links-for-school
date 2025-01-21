@@ -1,3 +1,3 @@
 # links-for-school
-a repository filled with unblockers, games, and more!! 
-
+A repository filled with unblockers, games, and more!! 
+If you like this repository then cool!
