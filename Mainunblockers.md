@@ -33,6 +33,18 @@ https://math.focr.sg/
 https://seanlikedicknballs.focr.sg/
 https://4kaomdf1.ints.f5.si/
 https://hermanisnothim.pimp.co.za/
+https://bagel-math.uhaneingenieria.mx/
+https://nc-is-gay.uk.to/
+https://orionhasa13inchdickverticle.cstang.hk/
+https://art.cstang.hk/
+https://thisis.foryourviewingpleasure.com/
+https://jny7gjz5kqft4ed0taizldewa1g3lfskm9gauwpfzyosch3ydezt6tftwyptdgw.cederfeldt.se/
+https://marcusisawatermelonmuncher.cstang.hk/
+https://5nwraiqfgz7z7uiv.mathmathmath.ipv64.net/
+# Doge Unblocker links
+https://math4koolaid.fluffandflog.com/
+https://zzylos.ignorelist.com/
+https://learnthe.arepropiedades.cl/
 
 
 
