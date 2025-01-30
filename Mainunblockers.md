@@ -41,6 +41,19 @@ https://thisis.foryourviewingpleasure.com/
 https://jny7gjz5kqft4ed0taizldewa1g3lfskm9gauwpfzyosch3ydezt6tftwyptdgw.cederfeldt.se/
 https://marcusisawatermelonmuncher.cstang.hk/
 https://5nwraiqfgz7z7uiv.mathmathmath.ipv64.net/
+https://8032174309472427.j34n.net/
+https://scaredofthedark.radarvision.co.za/
+https://app.wwwwwwgitlab.zaydstillhasbraindamage.duckdns.org/
+https://ww.proxy-creator-shadow-browser-3.duckdns.org/
+https://www.apea.shadowshadowshadow.root64.de/
+https://mw.ark.shadowshark.ipv64.net/
+https://portal.apai.shadowshark.ipv64.net/
+https://help.billigerhost.com/
+https://wsertyhuj.skrt.f5.si/
+https://jnlink3.work.gd/
+https://app.notexistswwwwww.proxy-creator-shadow-browser-2.duckdns.org/
+https://app.wwwwwwau.shadowbrowser.duckdns.org/
+https://apfree.shadowshark.ipv64.net/
 # Doge Unblocker links
 https://use.happyrobotics.com/
 https://math4koolaid.fluffandflog.com/
