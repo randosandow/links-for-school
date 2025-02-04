@@ -74,6 +74,10 @@ https://math4koolaid.fluffandflog.com/
 https://zzylos.ignorelist.com/
 https://learnthe.arepropiedades.cl/
 # Interstealler links
-interstellarrrrrrrrrr.vercel.app
-
+interstellarrrrrrrrrr.vercel.app <--- paste this into browser
+https://clever.com.cerrajeriasanmiguel.com/
+https://make-sure-the-house-is.spotless.cl/
+https://please-go.away.pk/
+https://interstellar.sysops.cl/
+https://old.death.cl/
 
