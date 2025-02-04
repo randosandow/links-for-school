@@ -54,6 +54,20 @@ https://jnlink3.work.gd/
 https://app.notexistswwwwww.proxy-creator-shadow-browser-2.duckdns.org/
 https://app.wwwwwwau.shadowbrowser.duckdns.org/
 https://apfree.shadowshark.ipv64.net/
+https://ant.shadowshark.ipv64.net/
+https://as.shark.shadowshark.ipv64.net/
+https://email.app.shadowbrowser.ipv64.net/
+https://notmyproblem.shadowshark.ipv64.net/
+https://portal.spedslaveabuse.shadowshark.ipv64.net/
+https://www.test.mumei.ipv64.net/
+https://cacoon.ikoona.com/
+https://www.portal.obierutarouuu.vpn64.de/
+https://scienceandmath.us.to/
+https://app.ramme23u.route64.de/
+https://www.3m3735fl5f52nv83.hehege.vpn64.de/
+https://gxcqgwww.cfixpwwwapp.crimson.api64.de/
+https://portal.obierutarouuu.vpn64.de/
+https://app.jenkins.bebanndakorou-scandj.accesscam.org/
 # Doge Unblocker links
 https://use.happyrobotics.com/
 https://math4koolaid.fluffandflog.com/
