@@ -80,6 +80,11 @@ https://make-sure-the-house-is.spotless.cl/
 https://please-go.away.pk/
 https://interstellar.sysops.cl/
 https://old.death.cl/
+https://booking.church.lodgegomantak.org/
+https://news.obermotz.org/
+https://education.read.thebookllc.com
+https://order.toastapp.bocellipizza.com/
+
 # Rammerhead links 
 Web browser no games :(
 https://help.smartknb.com/
