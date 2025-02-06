@@ -82,3 +82,10 @@ https://interstellar.sysops.cl/
 https://old.death.cl/
 # Rammerhead links 
 Web browser no games :(
+https://help.smartknb.com/
+https://foundthe.lostgumball.com/
+https://hr3u4t.d-n-s.name/
+https://this.is.notenoughdew.com/
+https://sighihaventmadeoneoftheseinaminutefr.florianschlueter.eu/
+https://adam.likes.the.burgerbar.cl/
+https://desmosgraphingsimulatorboiiamongus.novipro.ca/
