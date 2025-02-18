@@ -1,6 +1,5 @@
 # links-for-school: If you like this repository then cool!
-Updated on 2/5/25  A repository filled with unblockers, games, and more!! 
-
+Today is a sad day boys. they just blocked every link on here for me
 
 Planning on adding more unblocker links soon
 
